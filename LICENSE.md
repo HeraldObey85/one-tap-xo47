@@ -1,4 +1,4 @@
-#  
+#  Experience one tap like never before with secret one tap Script, the #1 Script. Includes god mode and invisibility for unbeatable performance.
 
 
 
